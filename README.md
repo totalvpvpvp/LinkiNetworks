@@ -8,7 +8,7 @@ Linki Networks机场，使用SS协议，全高速隧道节点，大陆多地区�
 
 节点包括香港, 印度, 日本, 韩国, 台湾, 新加坡, 澳大利亚, 德国, 土耳其, 美国等国家和地区。
 
-流媒体智齿Netfilx/Hulu/Disney+/DAZN。1111
+流媒体智齿Netfilx/Hulu/Disney+/DAZN。11111
 
 新用户有1天的试用，先试用再购买。
 
